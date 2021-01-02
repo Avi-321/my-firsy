@@ -1,1 +1,1 @@
-# Birthday wishing my friend
+# Wishing Birthday to my friend
